@@ -1,0 +1,1 @@
+# Welcome to Trado Open Source Platform 🚀
